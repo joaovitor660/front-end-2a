@@ -4,3 +4,4 @@
 
 
 - :+1: Meu email de contato de estudante é **j.santos28@escola.pr.gov.br**
+- :+1: Meu email de contato pessoal é **moneymonkey564@gmail.com**
