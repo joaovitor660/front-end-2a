@@ -3,4 +3,4 @@
 👋 Olá, meu nome é **João Vitor**
 
 
-⚫️ Meu email de contato de estudante é **j.santos28@escola.pr.gov.br**
+- :+1: Meu email de contato de estudante é **j.santos28@escola.pr.gov.br**
