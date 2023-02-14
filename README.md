@@ -7,4 +7,4 @@
 - 
 - :+1: Meu email de contato empresarial é **moneymonkey564@gmail.com**
 
-**Estou cursando Desenvolvimento de sistemas**
+**😎Estou cursando Desenvolvimento de sistemas**
